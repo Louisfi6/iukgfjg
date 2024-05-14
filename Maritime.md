@@ -1,0 +1,14 @@
+https://www.vesselfinder.com/
+https://www.marinetraffic.com
+https://www.shipxplorer.com/
+https://www.marinevesseltraffic.com/
+https://www.fleetmon.com/
+https://www.marinevesseltraffic.com/2013/02/military-ship-track.html
+http://ports.com/sea-route/
+https://map.openseamap.org/
+https://theshippingdatabase.com/
+https://www.track-trace.com/container
+https://www.searates.com/
+https://www.navysite.de/index.htm
+https://www.cruisemapper.com/
+https://www.submarinecablemap.com/

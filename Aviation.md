@@ -1,0 +1,17 @@
+https://globe.adsbexchange.com/
+https://flightaware.com/live/
+https://www.radarbox.com/
+https://www.airportia.com/
+https://www.ads-b.nl/
+https://www.flightairmap.com/
+https://www.flightaware.com/
+https://www.planespotters.net/
+https://skyvector.com/
+https://www.flightconnections.com/
+https://www.planelogger.com/
+https://www.helis.com/database/search/
+https://www.militaryaircraft.de/index.html
+https://russianplanes.net/
+https://seatmaps.com/
+https://geoxc-apps2.bd.esri.com/Visualization/sat2/index.html
+https://in-the-sky.org/satmap_worldmap.php
